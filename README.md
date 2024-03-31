@@ -1,0 +1,5 @@
+- Hi, I’m @LordOdin28
+- I’m interested in knowing stuff. The more i know the less stupid i feel.
+- I’m currently in my learning phase.
+- I am not actively looking to collaborate on anything yet but i am open to such oppurtunities.
+- Reach me at trivedivishesh28@gmail.com.
